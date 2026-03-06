@@ -1,8 +1,2 @@
 # myfirst-folder
-this is basic
-fhggbjbvgstghn
-
-
-
-
-bhb
+After long time i open this file...
